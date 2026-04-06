@@ -55,7 +55,7 @@ Docente universitario apasionado por la enseñanza de la programación, las tecn
 - **Facebook:** [facebook.com/evansbv](https://www.facebook.com/evansbv)
 - **Sitio web institucional:** [ficct.uagrm.edu.bo](http://www.ficct.uagrm.edu.bo)
 - **Aulas virtuales:** [virtual.uagrm.edu.bo](https://virtual.uagrm.edu.bo) / [presencial.uagrm.edu.bo](https://presencial.uagrm.edu.bo)
-- **Email:** (agrega tu correo si deseas)
+- **Email:** evansbalcazar@uagrm.edu.bo / evansbv@gmail.com
 
 ---
 
